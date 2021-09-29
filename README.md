@@ -1,0 +1,1 @@
+# mark8-emoji-dictionary
